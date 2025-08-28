@@ -1,0 +1,1 @@
+Money Vichara Business IQ Challenge – Test your business knowledge! Choose Easy, Moderate, or Hard. Higher difficulty means less time, bigger rewards, and penalties for wrong answers. Are you ready to prove your business IQ?
